@@ -1,5 +1,5 @@
 HELLO EVERYONE! IT'S ME IAN!!
-![avater](C:/Users/Ian Chen/.ssh/homework1/profile/figures/selfie.jpg)
+![avater](https://note.youdao.com/ynoteshare/index.html?id=cfb8314fd5ff9cd686b95652237efc30&type=note&_time=1637399594622)
 GLAD TO MEET U GUYS AND SHARE MY RECENT LIFE WITH U!
 
 I WOULD LOVE TO HANG OUT WITH NEW FRIENDS!
