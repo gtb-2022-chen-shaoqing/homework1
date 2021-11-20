@@ -1,5 +1,5 @@
 HELLO EVERYONE! IT'S ME IAN!!
-
+![avater](C:\Users\Ian Chen\.ssh\homework1\profile\figures\selfie.jpg)
 GLAD TO MEET U GUYS AND SHARE MY RECENT LIFE WITH U!
 
 I WOULD LOVE TO HANG OUT WITH NEW FRIENDS!
